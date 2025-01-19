@@ -39,7 +39,7 @@ pubg启动！！！！！！！！！！
 
 ·~~说我很好吃~~
 
-**2.[藍劍](3- 长按复制此条消息，打开抖音搜索，查看TA的更多作品。 https://v.douyin.com/if6REAje/ 5@2.com :3pm)**
+**2.[藍劍](https://v.douyin.com/if6REAje/ 5@2.com )**
 
 ·可爱的**furry**
 
