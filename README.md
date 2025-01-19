@@ -39,7 +39,7 @@ pubg启动！！！！！！！！！！
 
 ·~~说我很好吃~~
 
-**2.[藍劍](https://v.douyin.com/if6REAje/ 5@2.com)**
+**2.[藍劍](v.douyin.com/if6REAje/5@2.com)**
 
 ·可爱的**furry**
 
