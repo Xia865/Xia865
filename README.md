@@ -47,4 +47,9 @@ pubg启动！！！！！！！！！！
 
 ## 网站
 
-[Poke me =￣ω￣=](home.hongofficial.us.kg)
+[Poke me =￣ω￣=](hppts://home.hongofficial.us.kg)
+
+## 非官方ccplay（虫虫助手）交流区
+[Discord](https://discord.gg/BfUceZNGQJ)
+
+建设中，稍安勿燥(￣o￣) . z Z
