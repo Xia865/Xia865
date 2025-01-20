@@ -53,3 +53,8 @@ home.hongofficial.us.kg
 [Discord](https://discord.gg/BfUceZNGQJ)
 
 建设中，稍安勿燥(￣o￣) . z Z
+
+## 我的Python能力
+`print("❌Ə|\|0 Ð®️åğø|\|傻逼")`
+
+极限
