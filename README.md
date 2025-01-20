@@ -54,6 +54,8 @@ pubg启动！！！！！！！！！！
 
 ·有**同好**(如：吐槽，反乐子)
 
+·会编程
+
 ## 网站
 
 home.hongofficial.us.kg
@@ -75,5 +77,13 @@ home.hongofficial.us.kg
 
 #### 一秒
 
-·乐子
+·乐子,看楼上
+
+##NB
+
+### [LaysDragon鐳鍶龍](https://github.com/LaysDragon）
+
+·技术**过硬**
+
+·**福瑞**
 
