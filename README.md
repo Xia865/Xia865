@@ -81,7 +81,7 @@ home.hongofficial.us.kg
 
 ##NB
 
-### [LaysDragon鐳鍶龍](https://github.com/LaysDragon）
+### [LaysDragon鐳鍶龍](https://github.com/LaysDragon)
 
 ·技术**过硬**
 
