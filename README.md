@@ -3,9 +3,9 @@
 
 如果**一秒**赶来我GitHub发民主进步疯，就等着挨骂吧。
 
-无语，**G沙盒**你玩个蛋。还说什么"太平天国"，我还"中华民国"呢!!!
+无语，**G沙盒**你玩个蛋。
 
-1- 长按复制此条消息，打开抖音搜索，查看TA的更多作品。 [传送门](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk?sec_uid=MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk&from_ssr=1&from_aid=1128&u_code=27lf91cacf74&did=MS4wLjABAAAA3OBusSj8_2WL3BrthUpr6_b27R9r8H1lAIaUHpAnhwY&iid=MS4wLjABAAAArY9C48YbEtC1XwZs0uOimH_PaqoCieYACkUbPOT_wm9XS6tTjZojGGMCJnO10Tnl&with_sec_did=1&timestamp=1737388170&utm_source=copy&utm_campaign=client_share&utm_medium=android&app=aweme&life_share_ext=%7B%22life_share_id%22%3A%22c40f05a2ad014b5eb7cb465d70d8ff9b%22%2C%22from_user_id%22%3A2234634836646877%2C%22enter_from%22%3A%22others_homepage%22%2C%22personal_enter_page%22%3A%22personal_homepage%22%2C%22personal_enter_method%22%3A%22%22%7D&activity_info=%7B%22social_author_id%22%3A%223056241903150748%22%2C%22social_share_id%22%3A%222234634836646877_1737388170820%22%2C%22social_share_time%22%3A%221737388170%22%2C%22social_share_user_id%22%3A%222234634836646877%22%7D 1@0.com :1pm)
+传送门:https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk?sec_uid=MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk&from_ssr=1&from_aid=1128&u_code=27lf91cacf74&did=MS4wLjABAAAA3OBusSj8_2WL3BrthUpr6_b27R9r8H1lAIaUHpAnhwY&iid=MS4wLjABAAAArY9C48YbEtC1XwZs0uOimH_PaqoCieYACkUbPOT_wm9XS6tTjZojGGMCJnO10Tnl&with_sec_did=1&timestamp=1737388170&utm_source=copy&utm_campaign=client_share&utm_medium=android&app=aweme&life_share_ext=%7B%22life_share_id%22%3A%22c40f05a2ad014b5eb7cb465d70d8ff9b%22%2C%22from_user_id%22%3A2234634836646877%2C%22enter_from%22%3A%22others_homepage%22%2C%22personal_enter_page%22%3A%22personal_homepage%22%2C%22personal_enter_method%22%3A%22%22%7D&activity_info=%7B%22social_author_id%22%3A%223056241903150748%22%2C%22social_share_id%22%3A%222234634836646877_1737388170820%22%2C%22social_share_time%22%3A%221737388170%22%2C%22social_share_user_id%22%3A%222234634836646877%22%7D 1@0.com :1pm
 
 ## 关于我
 初中生+一堆4人作业+贼™反微软+兽迷+只会Markdown
@@ -48,7 +48,7 @@ pubg启动！！！！！！！！！！
 
 ·~~说我很好吃~~
 
-**2.[藍劍](https://v.douyin.com/if6REAje/ 5@2.com :3pm)**
+**2.[藍劍](【藍劍的个人空间-哔哩哔哩】 https://b23.tv/tXjBRXO)**
 
 ·可爱的**furry**
 
