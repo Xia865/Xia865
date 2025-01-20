@@ -5,7 +5,7 @@
 
 无语，**G沙盒**你玩个蛋。
 
-传送门:https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk?
+[传送门](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)
 
 ## 关于我
 初中生+一堆4人作业+贼™反微软+兽迷+只会Markdown
