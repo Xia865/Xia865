@@ -1,11 +1,9 @@
 # 通知
-**一秒**你就是个🐔
+[一秒](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)你也是来了
 
-如果**一秒**赶来我GitHub发民主进步疯，就等着挨骂吧。
+你别再发疯了你这个民主進步黨的走狗
 
-无语，**G沙盒**你玩个蛋。
-
-[传送门](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)
+赖清德酸大陆是不是还得拜你为师
 
 ## 关于我
 初中生+一堆4人作业+贼™反微软+兽迷+只会Markdown
