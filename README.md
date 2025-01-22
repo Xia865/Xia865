@@ -54,6 +54,8 @@ pubg启动！！！！！！！！！！
 
 ·会编程
 
+·将来会有一个属于自己的GitHub账号
+
 ## 网站
 
 home.hongofficial.us.kg
