@@ -1,9 +1,9 @@
 # 通知
 [一秒](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)你也是来了
 
-你别再发疯了你这个民主進步黨的走狗
+我警告你你完了
 
-赖清德酸大陆是不是还得拜你为师
+成天找你的**狐朋狗友在那边刷我评论区有意思吗
 
 ## 关于我
 初中生+一堆4人作业+贼™反微软+兽迷+只会Markdown
