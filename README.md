@@ -56,9 +56,13 @@ pubg启动！！！！！！！！！！
 
 ·将来会有一个属于自己的GitHub账号
 
-3.[玄弈胜天半子]( https://www.iesdouyin.com/share/user/MS4wLjABAAAAIkmnYIDQwU5KgfOF8b_xCFSdeS6qmQjq7H-CefRHhLHv28v0-JQ5TmjNEAEQQ9Z0）
+**3.[玄弈胜天半子](https://www.iesdouyin.com/share/user/MS4wLjABAAAAIkmnYIDQwU5KgfOF8b_xCFSdeS6qmQjq7H-CefRHhLHv28v0-JQ5TmjNEAEQQ9Z0）**
 
-·也是福瑞， 也会编程， 但是不知道有没有GitHub
+·也是福瑞， 也会编程， 
+
+**4.孙子烧烤**
+
+特别牛逼的一个程序员
 
 ## 网站
 
