@@ -1,9 +1,7 @@
 # 通知
-[一秒](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)你是G圈耻辱
+[一秒](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)
 
-为什么别的G沙盒玩家不反福瑞就你反
-
-你最好是赶紧滚出G沙盒
+你的糖分爆表
 
 ## 关于我
 初中生+一堆4人作业+贼™反微软+兽迷+只会Markdown
