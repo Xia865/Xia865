@@ -101,7 +101,7 @@ home.hongofficial.us.kg
 
 # 最喜欢的老师
 
-## [果糖含量](https://m.tb.cn/h.TM9oiM9C3egbbou)
+**[果糖含量](https://m.tb.cn/h.TM9oiM9C3egbbou)**
 
 ·有很多适用于学生的周边，比如笔记本。
 
@@ -111,7 +111,7 @@ home.hongofficial.us.kg
 
 # 讨厌的逆天福瑞
 
-黄某(这里就不放链接了，免得被社工库)
+**黄某**(这里就不放链接了，免得被社工库)
 
 ·辱华，并且将兽圈和政党这两个毫无关系的东西联系起来。这里人很无语。
 
