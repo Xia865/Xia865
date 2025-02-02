@@ -101,7 +101,7 @@ home.hongofficial.us.kg
 
 # 最喜欢的老师
 
-### **[果糖含量](https://m.tb.cn/h.TM9oiM9C3egbbou)**
+### [果糖含量](https://m.tb.cn/h.TM9oiM9C3egbbou)
 
 ·有很多适用于学生的周边，比如笔记本。
 
