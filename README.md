@@ -1,12 +1,6 @@
 # 通知
 [一秒](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)
-
-你的糖分爆表
-
-还有就是关于我的系统方面已经转成中立了
-
-但是我不会恶意去说任何一个系统
-
+是傻逼114514
 ## 关于我
 初中生+一堆4人作业+兽迷+只会Markdown
 ## 设备💻🖥️📱🤳
