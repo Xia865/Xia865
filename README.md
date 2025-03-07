@@ -1,4 +1,7 @@
 # 通知
+
+OK啊兄弟们！[藍劍](https://github.com/lanjian123580)有GitHub了
+
 [一秒](https://www.iesdouyin.com/share/user/MS4wLjABAAAAtauCbU_O-Lv_PbwBrRyyxxn472afC9eC0HnPNOGIIeGcR6WY-zozWrczTUwgkzmk)
 是傻逼114514
 ## 关于我
