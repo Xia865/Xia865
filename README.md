@@ -69,7 +69,7 @@ XenoDragon启......(南山少帅：你玩尼玛)
 
 ## 网站
 
-home.hongofficial.us.kg
+[看看](http://xia865.github.io/new-web/)
 
 ## 非官方ccplay（虫虫助手）交流区
 [Discord](https://discord.gg/BfUceZNGQJ)
