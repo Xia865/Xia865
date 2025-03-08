@@ -39,14 +39,7 @@ XenoDragon启......(南山少帅：你玩尼玛)
 
 3.喜欢熬夜
 ## 网友（仅部分）
-**1.[南山少帅Felix](https://www.facebook.com/felix.ng.52056)**
-·NB的**OpenStreetMap**大佬
-
-·我的**开源社区**启蒙者
-
-·~~说我很好吃~~
-
-**2.[藍劍](https://b23.tv/tXjBRXO)**
+**1.[藍劍](https://b23.tv/tXjBRXO)**
 
 ·可爱的**furry**
 
@@ -56,17 +49,17 @@ XenoDragon启......(南山少帅：你玩尼玛)
 
 ·深度合作伙伴
 
-**3.[玄弈胜天半子](https://www.iesdouyin.com/share/user/MS4wLjABAAAAIkmnYIDQwU5KgfOF8b_xCFSdeS6qmQjq7H-CefRHhLHv28v0-JQ5TmjNEAEQQ9Z0)**
+**2.[玄弈胜天半子](https://www.iesdouyin.com/share/user/MS4wLjABAAAAIkmnYIDQwU5KgfOF8b_xCFSdeS6qmQjq7H-CefRHhLHv28v0-JQ5TmjNEAEQQ9Z0)**
 
 ·也是福瑞， 也会编程， 
 
 ·Github：https://github.com/youshouyan
 
-**4.[孙子烧烤](https://v.douyin.com/ifyh2Tx6/)**
+**3.[孙子烧烤](https://v.douyin.com/ifyh2Tx6/)**
 
 特别牛逼的一个程序员
 
-**5.[Arena.003](https://www.iesdouyin.com/share/user/MS4wLjABAAAAZd7QnPYW49u9F4jrDzDQ2cRhFJn-AtFdM9t3IpexXy27ngaJaRExy4g2fTCHyHEw)**
+**4.[Arena.003](https://www.iesdouyin.com/share/user/MS4wLjABAAAAZd7QnPYW49u9F4jrDzDQ2cRhFJn-AtFdM9t3IpexXy27ngaJaRExy4g2fTCHyHEw)**
 
 ·超级牛逼的大佬
 
