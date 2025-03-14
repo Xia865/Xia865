@@ -117,3 +117,7 @@ XenoDragon启......(南山少帅：你玩尼玛)
 ·我记得一秒好像是个粉红吧！Telegram是支持消息预览的，他看到这些消息，然后再拍图发到网上，然后所有福瑞控可能都就完了。
 
 ###### ~~希望一秒不要知道社工库是什么~~
+
+# GitHub表现
+
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=xia865)](https://github.com/xia865/github-readme-stats)
