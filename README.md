@@ -14,6 +14,6 @@ hello，我是来自中国大陆的狐狸“鸿卤蛋”~~（免责声明:本人
 (有没有一种可能我并不经常编程)
 
 ## 朋友
-[藍劍](https://github.com/lanjian123580)，[玄奕胜天半子](https://github.com/youshouyan)[zg089](https://github.com/ZG089),等等
+[藍劍](https://github.com/lanjian123580)，[玄奕胜天半子](https://github.com/youshouyan)，[zg089](https://github.com/ZG089),等等
 
 ###### 看什么看，没了
