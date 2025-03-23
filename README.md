@@ -15,7 +15,7 @@ hello，我是来自中国大陆的狐狸“鸿卤蛋”~~（免责声明:本人
 
 ## 脸书自我介绍
 
-[View Facebook Post](https://www.facebook.com/permalink.php?story_fbid=pfbid034kCmgPhsmuHm1dXfgk3e4oSzCW2QhLawFLwnDy6JaekVp3uTqBXwqpYtMmBAS6cJl&id=61556774966690)
+![View Facebook Post](https://www.facebook.com/permalink.php?story_fbid=pfbid034kCmgPhsmuHm1dXfgk3e4oSzCW2QhLawFLwnDy6JaekVp3uTqBXwqpYtMmBAS6cJl&id=61556774966690)
 
 ###### 你就看吧。
 
