@@ -13,6 +13,12 @@ hello，我是来自中国大陆的狐狸“鸿卤蛋”~~（免责声明:本人
 
 (有没有一种可能我并不经常编程)
 
+## 脸书自我介绍
+
+[View Facebook Post](https://www.facebook.com/permalink.php?story_fbid=pfbid034kCmgPhsmuHm1dXfgk3e4oSzCW2QhLawFLwnDy6JaekVp3uTqBXwqpYtMmBAS6cJl&id=61556774966690)
+
+###### 你就看吧。
+
 ## 朋友
 [藍劍](https://github.com/lanjian123580)，[玄奕胜天半子](https://github.com/youshouyan)，[zg089](https://github.com/ZG089),等等
 
