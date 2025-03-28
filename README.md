@@ -20,5 +20,3 @@ hello，我是来自中国大陆的狐狸“鸿卤蛋”~~（免责声明:本人
 
 ###### 看什么看，没了
 
-![[Anurag's]](https://github-readme-stats.vercel.app/api?username=lanjian123580)
-![](https://github-readme-stats.vercel.app/api/top-langs/?username=lanjian123580&theme=gotham&hide_border=true&include_all_commits=true&count_private=false&layout=compact)
