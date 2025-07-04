@@ -4,7 +4,7 @@
 ![](https://img.picui.cn/free/2025/06/29/6860929b41652.jpeg)
 
 
-# 关于我(左边那个，右边的是JWANG技网)
+# 关于我(左边那个，右边的是[JWANG技网](https://img.picui.cn/free/2025/06/29/686091c470d4d.png))
 
 一位14岁的初中生，超级逗比一个。
 
