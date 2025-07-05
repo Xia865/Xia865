@@ -16,6 +16,17 @@ arduino初学开发者。
 
 我有俩设，一个是鸿卤蛋(纯种狐狸)，一个是顥青(龙犬)。
 
+## 关于**顥青**
+
+它是我买断的兽，是只**龙犬**。
+
+*你尝尝呗*(_**勿动**_)
+
+[![Real-ESRGANv3-anime-0705-172743.png](https://i.postimg.cc/QMJrwnvB/Real-ESRGANv3-anime-0705-172743.png)](https://postimg.cc/d73XTnsv)
+
+
+
+
 ## [网友的网页](https://jiwang.mysxl.cn/)
 
 这是广告，想移除是不可能的，老老实实看广告吧！
