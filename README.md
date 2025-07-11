@@ -24,7 +24,7 @@ arduino初学开发者。
 
 *你尝尝呗*(_**勿动**_)
 
-[![Real-ESRGANv3-anime-0705-172743.png](https://i.postimg.cc/QMJrwnvB/Real-ESRGANv3-anime-0705-172743.png)](https://postimg.cc/d73XTnsv)
+[![Real-ESRGANv3-anime-0705-172743.png](https://i.postimg.cc/QMJrwnvB/Real-ESRGANv3-anime-0705-172743.png)]()
 
 
 ## 关于JWANG技网（我是广告）(你知道我没他牛逼就行呗)
