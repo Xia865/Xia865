@@ -1,6 +1,5 @@
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=print(%22hello%2C+world%22);%23+%E5%AD%99%E5%AD%90%E7%83%A7%E7%83%A4%E8%AF%B7%E5%85%B3%E6%B3%A8%E6%88%91;%23%23+%E4%BD%99%E9%BA%BB%E5%AD%90%E6%88%91%E6%93%8D%E4%BD%A0%E5%A6%88;%E5%A5%BD%E5%85%84%E5%BC%9F%3AFenris%EF%BC%8C%E8%93%9D%E6%BE%9C%EF%BC%8CJWANG%E6%8A%80%E7%BD%91(%E5%86%99%E4%B8%8D%E5%BC%80))](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=%23+%E9%99%88%E9%93%A0%E6%88%91%E6%93%8D%E4%BD%A0%E5%A6%88;%23%23+%E5%A5%BD%E5%85%84%E5%BC%9F%EF%BC%9A%E8%93%9D%E8%8A%92%E3%80%81Fenris%E3%80%81JWANG%E6%8A%80%E7%BD%91;%E5%9C%88%E5%AD%90%E6%9C%AC%E5%B0%B1*%E4%B8%80%E7%9B%98%E6%95%A3%E6%B2%99*;%E5%88%AB%E6%8B%BF%E4%B8%BA%E5%9C%88%E5%AD%90%E5%A5%BD%E8%BF%99%E4%B8%AA%E7%90%86%E7%94%B1*%E8%83%A1%E4%BD%9C%E9%9D%9E%E4%B8%BA*)](https://git.io/typing-svg)
 
 
 
