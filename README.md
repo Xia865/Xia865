@@ -44,7 +44,7 @@ arduino初学开发者。
 
 他头像:
 
-[![IMG-20250615-121359.jpg](https://i.postimg.cc/kg99YMBc/IMG-20250615-121359.jpg)](https://postimg.cc/BXhdX05L)
+[![Real-ESRGANv3-anime-0810-221338.png](https://i.postimg.cc/XNKcR3LJ/Real-ESRGANv3-anime-0810-221338.png)](https://postimg.cc/s1XhWktd)
 
 
 
