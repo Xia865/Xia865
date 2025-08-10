@@ -38,6 +38,16 @@ arduino初学开发者。
 
 ~~别看我了，就算看我你也没法移除广告~~
 
+# 关于**白狼冬星**
+
+他是**冬瓜**，是**冬瓜**！他才不叫**冬星**呢，你说他是**冬星**，~~他会生气的！~~
+
+他头像:
+
+[![IMG-20250615-121359.jpg](https://i.postimg.cc/kg99YMBc/IMG-20250615-121359.jpg)](https://postimg.cc/BXhdX05L)
+
+
+
 # 这他妈也算考试分数的话这算多少
 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=xia865)](https://github.com/xia865/github-readme-stats)
