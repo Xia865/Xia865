@@ -46,9 +46,13 @@ arduino初学开发者。
 
 他是**冬瓜**，是**冬瓜**！他才不叫**冬星**呢，你说他是**冬星**，~~他会生气的！~~
 
-他头像:
+他长这个样子:
 
 [![Real-ESRGANv3-anime-0810-221338.png](https://i.postimg.cc/XNKcR3LJ/Real-ESRGANv3-anime-0810-221338.png)](https://postimg.cc/s1XhWktd)
+
+抖音头像:
+
+[![Real-ESRGANv3-anime-0810-222257.png](https://i.postimg.cc/SQ825ryf/Real-ESRGANv3-anime-0810-222257.png)](https://postimg.cc/jCxSnynD)
 
 
 
