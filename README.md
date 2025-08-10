@@ -36,6 +36,8 @@ arduino初学开发者。
 
 [![Real-ESRGANv3-anime-0810-221926.png](https://i.postimg.cc/MKN7RTK9/Real-ESRGANv3-anime-0810-221926.png)](https://postimg.cc/RN1Jxvtt)
 
+~~因为个别原因二号和四号未公开~~
+
 他的官网：https://jiwang.mysxl.cn/
 
 他已经养四个崽崽了，*羡慕死*
