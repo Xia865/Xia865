@@ -28,9 +28,13 @@ arduino初学开发者。
 
 ## 关于JWANG技网（我是广告）(你知道我没他牛逼就行呗)
 
-*右边那个,自己看(~~左边那个是我的主设——鸿卤蛋~~)*
+**他长这个样子(初代设定)**
 
-![](https://img.picui.cn/free/2025/06/29/6860929b41652.jpeg)
+[![Real-ESRGANv3-anime-0501-044823.png](https://i.postimg.cc/kGMcjhkw/Real-ESRGANv3-anime-0501-044823.png)](https://postimg.cc/vgjfTX86)
+
+**他的三号oc**
+
+[![Real-ESRGANv3-anime-0810-221926.png](https://i.postimg.cc/MKN7RTK9/Real-ESRGANv3-anime-0810-221926.png)](https://postimg.cc/RN1Jxvtt)
 
 他的官网：https://jiwang.mysxl.cn/
 
