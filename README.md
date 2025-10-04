@@ -1,6 +1,3 @@
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=%E5%AD%A9%E5%AD%90%E4%BB%AC%E5%BF%B5%E5%BF%B5%E6%B8%85%E9%A3%8E%E8%B5%B7%E2%9C%A8%E8%A2%AB%E5%BE%AE%E8%BD%AF%E5%81%9A%E5%B1%80%E4%BA%86)](https://git.io/typing-svg)
-
 # 广告
 
 孩子们
