@@ -31,6 +31,12 @@ arduino初学开发者。
 
 [![Real-ESRGANv3-anime-0705-172743.png](https://i.postimg.cc/QMJrwnvB/Real-ESRGANv3-anime-0705-172743.png)]()
 
+（炫耀稿件）
+
+[![Image-1755621054953.png](https://i.postimg.cc/Kz8FfDHB/Image-1755621054953.png)](https://postimg.cc/zL69XK5G)
+
+[![Image-1759305713807.png](https://i.postimg.cc/RCnCDX0g/Image-1759305713807.png)](https://postimg.cc/PNTkLbYD)
+
 
 ## 关于JWANG技网（我是广告）(你知道我没他牛逼就行呗)
 
@@ -49,31 +55,6 @@ arduino初学开发者。
 他已经养四个崽崽了，*羡慕死*
 
 ~~别看我了，就算看我你也没法移除广告~~
-
-# 关于**白狼冬星**
-
-他是**冬瓜**，是**冬瓜**！他才不叫**冬星**呢，你说他是**冬星**，~~他会生气的~~
-
-抖音头像:
-
-[![Real-ESRGANv3-anime-0810-222257.png](https://i.postimg.cc/SQ825ryf/Real-ESRGANv3-anime-0810-222257.png)](https://postimg.cc/jCxSnynD)
-
-
-
-# 这他妈也算考试分数的话这算多少
-
-[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=xia865)](https://github.com/xia865/github-readme-stats)
-
-# 用的啥语言
-
-![](https://github-readme-stats.vercel.app/api/top-langs/?username=xia865&theme=gotham&hide_border=true&include_all_commits=true&count_private=false&layout=compact)
-
-(有没有一种可能我并不经常编程)
-
-###### 你就看吧。
-
-## 朋友
-[藍劍](https://github.com/lanjian123580)，[玄奕胜天半子](https://github.com/youshouyan)，[zg089](https://github.com/ZG089),等等(孙子烧烤:*？？？*)
 
 ###### 看什么看，没了
 
